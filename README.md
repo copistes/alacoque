@@ -17,7 +17,12 @@ https://github.com/copistes/alacoque/releases/tag/0.1
 - DOCX: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.docx
 - EPUB: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.epub
 - PDF: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.pdf
+- MD: https://github.com/copistes/alacoque/blob/main/texte.md
 
 # Licence
 
 LGPL, pour ce qui est du texte il est dans le domaine public.
+
+# Contribuer
+
+Les contributions doivent se faire sur la version Markdown, toutes les autres étant générées à partir de celle-ci.

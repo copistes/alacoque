@@ -1,0 +1,14 @@
+---
+title: Vie de la Bienheureuse Marguerite-Marie Alacoque
+author: Sainte Marguerite Marie Alacoque
+rights: LGPL Licence, original text is plublic domain.
+lang: fr
+tags: [Religion]
+abstract: |
+  Vie de la Bienheureuse Marguerite-Marie Alacoque : tirée textuellement d'un manuscrit écrit par elle-même d'après l'ordre du P. Rolin, son directeur, suivie d'une neuvaine en son honneur par le R. P. Piccirelli.
+mainfont: DejaVu Sans
+
+# Filter preferences:
+# - pandoc-crossref
+linkReferences: true
+---

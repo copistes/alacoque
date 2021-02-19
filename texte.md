@@ -66,9 +66,15 @@ Et dès lors mon âme en demeura si pénétrée, que j'aurais désiré que mes p
 
 Mais dans l'extrême violence qu'il me faut faire en écrivant ceci, que j'avais toujours tenu caché avec tant de soin et de précaution pour l'avenir, tâchant même de n'en conserver aucune idée dans ma mémoire, afin de tout laisser dans celle de mon bon Maître, je [lui] fis mes plaintes dans la grande répugnance que je sens; mais il m'a fait entendre et dit :
 
-> — « Poursuis, ma fille, poursuis, il n'en sera ni plus ni moins pour toutes tes répugnances; il faut que ma volonté s’accomplisse. »<br>
- — « Mais, hélas! mon Dieu, comment me souvenir de ce qui s'est passé depuis plus d'environ vingt-cinq ans ? »<br>
- — «Ne sais-tu pas  que je suis la mémoire éternelle de mon Père  céleste qui ne s'oublie jamais de rien, et dans  laquelle le passé et le futur sont comme le présent Ecris donc sans crainte tout, suivant que je te dicterai, te promettant d'y répandre l'onction de ma grâce, afin que j'en sois glorifié <p>Premièrement, je veux cela de toi pour te faire voir que je me joue, en rendant inutiles toutes les précautions que je t'ai laissé prendre pour cacher la profusion des grâces dont j'ai pris plaisir d'enrichir une aussi pauvre et chétive créature que toi, qui n'en dois jamais perdre le souvenir, pour m'en rendre de continuelles actions de grâces.</p><p>En second lieu, pour t'apprendre que tu ne te dois point t'approprier ces grâces, ni être chiche de les distribuer aux autres, puisque je me suis voulu servir de ton cœur comme d'un canal pour les répandre selon mes desseins dans les âmes, dont plusieurs seront retirées par ce moyen de l'abîme de perdition, comme je te le ferai voir dans la suite.</p><p>Et en troisième lieu, pour faire voir que je suis la Vérité éternelle, qui ne peut mentir, je suis fidèle à mes promesses, et que les grâces que je t'ai faites peuvent souffrir toutes sortes d'examens et d'épreuves.»</p>
+> — « Poursuis, ma fille, poursuis, il n'en sera ni plus ni moins pour toutes tes répugnances; il faut que ma volonté s’accomplisse. »
+>
+> — « Mais, hélas! mon Dieu, comment me souvenir de ce qui s'est passé depuis plus d'environ vingt-cinq ans ? »
+>
+> — « Ne sais-tu pas  que je suis la mémoire éternelle de mon Père  céleste qui ne s'oublie jamais de rien, et dans  laquelle le passé et le futur sont comme le présent Ecris donc sans crainte tout, suivant que je te dicterai, te promettant d'y répandre l'onction de ma grâce, afin que j'en sois glorifié Premièrement, je veux cela de toi pour te faire voir que je me joue, en rendant inutiles toutes les précautions que je t'ai laissé prendre pour cacher la profusion des grâces dont j'ai pris plaisir d'enrichir une aussi pauvre et chétive créature que toi, qui n'en dois jamais perdre le souvenir, pour m'en rendre de continuelles actions de grâces.
+>
+>En second lieu, pour t'apprendre que tu ne te dois point t'approprier ces grâces, ni être chiche de les distribuer aux autres, puisque je me suis voulu servir de ton cœur comme d'un canal pour les répandre selon mes desseins dans les âmes, dont plusieurs seront retirées par ce moyen de l'abîme de perdition, comme je te le ferai voir dans la suite.
+>
+>Et en troisième lieu, pour faire voir que je suis la Vérité éternelle, qui ne peut mentir, je suis fidèle à mes promesses, et que les grâces que je t'ai faites peuvent souffrir toutes sortes d'examens et d'épreuves.»
 
  Après ces paroles, je me suis sentie tellement fortifiée, que malgré la grande [peine] que je sens que cet écrit ne soit vu, je suis résolue de poursuivre, quoi qu'il m'en coûte, pour accomplir la volonté de mon souverain Maître.
 
@@ -158,7 +164,9 @@ Mais ma plus grande joie de quitter le monde, était de penser que je communiera
 
 Mais comme je me plaignais sans cesse à mon divin Maître de ce que je craignais de ne lui pouvoir plaire en tout ce que je faisais, — d'autant qu'il y avait trop de ma volonté qui [faisait] les mortifications à mon gré, et je n'estimais que ce qui était fait par obéissance :
 
- > — « Hélas ! mon Seigneur », lui disais je. « Donnez-moi donc quelqu'un pour me  conduire à vous. » <br>— « Ne te suffis-je pas ?» me répondit-il; « Que crains-tu? Un enfant autant aimé que je t'aime peut-il périr entre les bras d'un Père tout Puissant? »
+ > — « Hélas ! mon Seigneur », lui disais je. « Donnez-moi donc quelqu'un pour me  conduire à vous. »
+ >
+ >— « Ne te suffis-je pas ?» me répondit-il; « Que crains-tu? Un enfant autant aimé que je t'aime peut-il périr entre les bras d'un Père tout Puissant? »
 
 Je ne savais pas ce que c'était que direction; mais j'avais un grand désir d'obéir, eL sa bonté permit que, dans le temps d'un Jubilé, il vint au logis un religieux de saint François, et il y coucha pour nous donner loisir de faire nos confessions générales. Il [y] avait plus d'environ quinze jours que j'étais après écrire la mienne; car encore que j'en fisse toutes les fois que j'en trouvais l'occasion, il me semblait toujours que je n'en pouvais assez faire, à cause de mes grands péchés. Je me sentais pénétrée d'une si vive douleur, que non-seulement j'en versais beaucoup de larmes, mais j'aurais de toute mon âme, dans l'excès de ma douleur, voulu les publier à tout le monde. Et mes plus grands gémissements venaient de ce que j'étais si aveugle que je ne les pouvais connaître, ni exprimer aussi énormes qu'ils étaient. Cela était la cause que j'écrivais :tout ce que je pouvais trouver dans les livres qui traitent de la confession ; et je mettais quelquefois des choses que j'avais horreur même de prononcer. Mais je disais en moi-même :
 
@@ -172,8 +180,9 @@ Cette confession me mit fort en paix. Je lui dis quelque" [chose] de la manière
 
  Ces paroles me calmèrent si fort, qu'elles me laissèrent sans aucun doute que cela s'accomplirait malgré les oppositions. Mon frère étant de retour, me dit :
 
- >— « On veut quatre mille - livres, c'est à vous de faire ce qu'il vous plaira de votre bien, car la chose n'est pas encore arrêtée. »<br>
-— En même temps, je lui dis résolument : « Jamais elle ne se conclura. Je veux aller aux Saintes-Maries dans un court vent bien éloigné, où je n'aurai ni parent, ni connaissance, car je ne veux être religieuse que pour l'amour de Dieu. Je veux quitter le monde tout à fait, en me cachant dans quelque petit coin, pour l'oublier et en être oubliée, et ne plus le voir. »
+> — « On veut quatre mille - livres, c'est à vous de faire ce qu'il vous plaira de votre bien, car la chose n'est pas encore arrêtée. »
+>
+> — En même temps, je lui dis résolument : « Jamais elle ne se conclura. Je veux aller aux Saintes-Maries dans un court vent bien éloigné, où je n'aurai ni parent, ni connaissance, car je ne veux être religieuse que pour l'amour de Dieu. Je veux quitter le monde tout à fait, en me cachant dans quelque petit coin, pour l'oublier et en être oubliée, et ne plus le voir. »
 
  On me proposa plusieurs monastères auxquels je ne pouvais me résoudre; mais aussitôt qu'on me nomma Paray, mon cœur se dilata de joie, et j'y consentis d'abord. Mais il me fallut encore aller voir ces religieuses où j'avais demeuré à l'âge de huit ans, ce qui me fut encore un rude combat à soutenir. Car elles me firent entrer, en me disant que j'étais leur enfant, et pourquoi je les voudrais quitter, puisqu'elles m'aimaient si tendrement ; qu'elles ne pouvaient me voir entrer à Sainte-Marie, sachant bien que je n'y persévérerais pas. Je dis que je voulais essayer. Elles me firent promettre de retourner chez elles lorsque j'en sortirais ; car elles savaient bien, disaient-elles, que je ne m'y pourrais jamais accoutumer. Et quoiqu'elles m'en purent dire, mon cœur était insensible, et s'affermissait tant plus en sa résolution, disant toujours :
 
@@ -201,9 +210,11 @@ Enfin ce jour tant désiré étant venu pour dire adieu au monde, jamais je ne s
 
 Je sentis d'abord gravé dans mon esprit que cette maison de Dieu était un lieu saint; que toutes celles qui l'habitaient devaient être saintes ; que ce nom de Sainte Marie me signifiait qu'il la fallait être à quelque prix que ce fût, et que c'était pourquoi il fallait s'abandonner et sacrifier à toutes sans aucune réserve ni ménagement. Cela m'adoucissait tout. ce qui me paraissait de plus rude dans ces commencements. Tous les matins, pendant quelques jours, l'on me réveillait avec ces paroles que j'entendais distinctement sans les comprendre :
 
-> — « Dilexisti justitiam » et le reste du verset ;<br>
-— et d'autres fois « Audi filia et vide, »<br>
-— Et encore celles-ci : « Tu as reconnu ton sentier et ta voie, ô ma Jérusalem, maison d'Israël ; mais le Seigneur te gardera en toutes voies et ne t'abandonnera jamais. »
+> — « Dilexisti justitiam » et le reste du verset ;
+>
+>— et d'autres fois « Audi filia et vide, »
+>
+>— Et encore celles-ci : « Tu as reconnu ton sentier et ta voie, ô ma Jérusalem, maison d'Israël ; mais le Seigneur te gardera en toutes voies et ne t'abandonnera jamais. »
 
 Je disais tout cela à ma bonne maîtresse sans le comprendre. Je la regardais et ma Supérieure aussi comme mon Jésus-Christ en terre. Et comme je ne savais et n'avais jamais eu de conduite ni direction, j'étais si aise de m'y voir assujettie afin de pouvoir obéir, qu'il me semblait être des oracles tout ce qu'elles me disaient, et que je n'aurais plus rien à craindre en le faisant par obéissance.
 
@@ -227,20 +238,31 @@ Ayant passé mon essai avec un ardent désir de me voir toute à Dieu, [il] me 
 
 Cela me mit dans une grande désolation, dans laquelle je fis tous mes efforts et n'épargnais rien pour me retirer de cette voie; mais tous mes efforts furent inutiles. Et notre bonne maîtresse y travaillait de son côté sans que pourtant je le comprisse; car comme elle me voyait beaucoup affamée de faire l'oraison et de l'apprendre à faire, ne pouvant, quelque effort que je fisse, suivre les méthodes que l'on me donnait pour cela, et [qu'il] fallait toujours revenir à celle de mon divin Maître, quoique je fisse tout mon possible pour tout oublier et me détourner de lui, l'on me donna pour aide à une officière, laquelle me faisait travailler pendant l'oraison. Après quoi, allant demander à ma maîtresse pour la reprendre, elle me corrigeait fortement, me disant de la faire en faisant notre ouvrage, parmi les exercices du noviciat, ce que je faisais sans que cela me pût détourner de la douce joie et consolation de mon âme qui la sentait toujours augmenter. L'on m'ordonna d'aller entendre les points d'oraison du matin, après quoi je sortirais pour aller balayer le lieu qu'on me dirait, pour jusqu'à prime, après laquelle l'on me faisait rendre compte de mon oraison, ou plutôt de celle que mon souverain Maître faisait en moi et pour moi, qui n'avais d'autre vue, en tout cela, que d'obéir; en quoi je sentais un plaisir extrême, quelque peine que souffrît mon corps en le faisant. Je chantais après :
 
-> « Plus l'on contredit mon amour,<br>Plus cet unique bien m'enflamme.<br>
-Que l'on m'afflige nuit et jour,<br>On ne peut l'ôter à mon âme.<br>
-Plus je souffrirai de douleur,<br>Plus il m'unira à son Cœur. »
+> « Plus l'on contredit mon amour,
+>
+> Plus cet unique bien m'enflamme.
+>
+>Que l'on m'afflige nuit et jour,
+>
+>On ne peut l'ôter à mon âme.
+>
+>Plus je souffrirai de douleur,
+>
+>Plus il m'unira à son Cœur. »
 
 Je me sentais une faim insatiable des humiliations et mortifications, bien que mon naturel sensible les ressentît vivement. Mon divin Maître me pressait sans cesse d'en demander, ce qui m'en procurait de bonnes; car quoiqu'on me refusât celles que je demandais on m'en donnait d'autres que je n’attendais pas, et si opposées à mes inclinations, que j'étais obligée de dire à mon bon Maître, dans l'effort de la violence qu'il me fallait [faire] :
 
-> —« Hélas venez à mon secours, puisque vous en êtes la cause »<br>
-— Ce qu'il faisait en me disant : « Reconnais donc que tu ne peux rien sans moi qui ne te laisserai point manquer de secours, pourvu que tu tiennes toujours ton néant et ta faiblesse abîmés dans ma force. »
+> —« Hélas venez à mon secours, puisque vous en êtes la cause »
+>
+> — Ce qu'il faisait en me disant : « Reconnais donc que tu ne peux rien sans moi qui ne te laisserai point manquer de secours, pourvu que tu tiennes toujours ton néant et ta faiblesse abîmés dans ma force. »
 
 Je ne dirai qu'une de ces sortes d'occasions mortifiantes au-dessus de mes forces, et où il me fit vraiment éprouver l'effet de sa promesse. C'est une chose pour laquelle toute nôtre famille avait une si grande aversion naturelle, que mon frère retint, en passant le contrat de ma réception, que l'on ne me contraindrait jamais à faire cela : ce que l'on n'eut pas [de] peine d'accorder, la chose étant si indifférente d'elle-même. [C'est] à cela même qu'il me fallut rendre, car l'on m'attaqua si fortement là-dessus de toutes parts, que je ne savais plus à quoi me résoudre : d'autant que ma vie me semblait mille fois plus facile à sacrifier; et si je n'avais plus chéri ma vocation que ma vie, je l'aurais alors bien plutôt quittée, que de me résoudre à faire ce que l'on désirait de moi; mais c'était en vain que je résistais, puisque mon Sauveur voulait ce sacrifice, duquel en dépendaient tant d'autres. Je fus trois jours à combattre avec tant de violence que j'en faisais compassion, surtout à ma maîtresse, devant laquelle je me mettais tout d'abord en devoir de faire ce qu'elle me disait; et puis le courage me manquait, et je mourais de douleur de ne pouvoir vaincre mon naturel, et je lui disais :
 
-> - « Hélas! que ne m'ôtez-vous la vie plutôt que de me laisser manquer à l'obéissance! »<br>
-— Sur quoi elle me repoussa : « Allez, dit elle; vous n'êtes pas digne de la pratiquer, et je vous défends maintenant de faire ce que je vous commandais. » <br>
-— Ce m'en fut assez. Je dis d'abord : « Il [faut] mourir ou vaincre. » 
+> - « Hélas! que ne m'ôtez-vous la vie plutôt que de me laisser manquer à l'obéissance! »
+>
+>— Sur quoi elle me repoussa : « Allez, dit elle; vous n'êtes pas digne de la pratiquer, et je vous défends maintenant de faire ce que je vous commandais. »
+>
+>— Ce m'en fut assez. Je dis d'abord : « Il [faut] mourir ou vaincre. » 
 
 Je m'en allais devant le Très-Saint Sacrement, mon asile ordinaire, où je demeurai environ trois ou quatre heures à pleurer et gémir, pour obtenir la force de me vaincre.
 
@@ -259,8 +281,9 @@ Ce fut après ce sacrifice que toutes les grâces et faveurs de mon Souverain se
 Mais je supprime toutes ces prédilections et profusions du pur amour, qui étaient si grandes, que je [ne] pourrais pas bien m'en exprimer.
 Sur quoi l'on m'attaqua encore, proche le temps de ma profession, me disant que l'on voyait bien que je n'étais pas propre à prendre l'esprit de la Visitation, qui craignait toutes ces sortes de voies sujettes à la tromperie et illusion. Ce que je représentai d'abord à mon Souverain on lui faisant mes plaintes :
 
-> — « Hélas ! mon Seigneur, vous serez a donc la cause que l'on me renverra? »<br>
-— Sur quoi il me fut répondu : « Dis à ta Supérieure qu'il n'y a rien à craindre pour te recevoir, que je réponds pour toi, et que, si elle me trouve solvable, je serai ta caution. »
+> — « Hélas ! mon Seigneur, vous serez a donc la cause que l'on me renverra? »
+>
+> — Sur quoi il me fut répondu : « Dis à ta Supérieure qu'il n'y a rien à craindre pour te recevoir, que je réponds pour toi, et que, si elle me trouve solvable, je serai ta caution. »
 
 Et [lui ayant] fait ce rapport, elle m'ordonna de lui demander, pour marque de sûreté, qu'il me rendit utile à la sainte religion par la pratique exacte de toutes ses observances. Sur quoi son amoureuse bonté me répondit : 
 
@@ -303,9 +326,11 @@ Cela plut à ma Supérieure, laquelle me fit abandonner à sa puissance, ce que 
 
 Il me demanda après la sainte Communion de lui réitérer le sacrifice que je lui avais déjà fait de ma liberté et de tout mon être, ce que je fis de tout mon cœur.
 
-> « Pourvu, lui dis-je, ô mon souverain Maître, que vous [ne] fassiez jamais rien paraître en moi d'extraordinaire que ce qui me pourra causer le plus d'humiliation et d'abjection devant les créatures, et me détruire dans leur estime ; car, bêlas ! mon Dieu, je sens  ma faiblesse, je crains de vous trahir, et que vos dons ne soient pas en sûreté chez moi. »<br>
-— « Ne crains rien, ma fille », me dit-il, « j'y mettrai bon [ordre], car je m'en rendrai le gardien moi-même et te rendrai impuissante à me résister. » <br>
-— « Eh quoi ! mon Dieu, me laisserez-vous toujours vivre sans souffrir ? »
+> « Pourvu, lui dis-je, ô mon souverain Maître, que vous [ne] fassiez jamais rien paraître en moi d'extraordinaire que ce qui me pourra causer le plus d'humiliation et d'abjection devant les créatures, et me détruire dans leur estime ; car, bêlas ! mon Dieu, je sens  ma faiblesse, je crains de vous trahir, et que vos dons ne soient pas en sûreté chez moi. »
+>
+>— « Ne crains rien, ma fille », me dit-il, « j'y mettrai bon [ordre], car je m'en rendrai le gardien moi-même et te rendrai impuissante à me résister. »
+>
+>— « Eh quoi ! mon Dieu, me laisserez-vous toujours vivre sans souffrir ? »
 
 Il me fut d'abord montré une grande croix, dont je ne pouvais voir le bout, mais elle était toute couverte de fleurs :
 
@@ -367,8 +392,9 @@ Et le feu qui me dévorait me jeta d'abord dans une grande fièvre continue; mai
 
 Mais Notre-Seigneur me continuant toujours ses grâces, je reçus celle incomparable qu'il me sembla, pendant une défaillance qui m'avait pris, que les trois personnes de l'adorable Trinité se présentèrent à moi, [et] firent sentir de grandes consolations à mon âme. Mais ne pouvant m'expliquer [sur] ce qui se passa alors [je n'en dirai rien], sinon qu'il me sembla que le Père éternel, me présentant une fort grosse croix toute hérissée d'épines, accompagnée de tous les autres instruments de la Passion, il me dit : 
 
-> « Tiens, ma fille, je te fais le même présent qu'à mon Fils bien aimé. » <br>
-— « Et moi, me dit mon Seigneur Jésus Christ, je t'y attacherai comme j'y ai été attaché et je t'y tiendrai fidèle compagnie. » 
+> « Tiens, ma fille, je te fais le même présent qu'à mon Fils bien aimé. »
+>
+> — « Et moi, me dit mon Seigneur Jésus Christ, je t'y attacherai comme j'y ai été attaché et je t'y tiendrai fidèle compagnie. » 
 
 La troisième de ces adorables Personnes me dit :
 
@@ -396,10 +422,13 @@ Et aussitôt me découvrant cet horrible tableau, [il me fit voir] un raccourci 
 Car il imprimait en moi des peines insupportables de haine et de vengeance contre moimême, et l'obéissance ne me permettant pas d'exécuter sur moi les rigueurs que cela me suggérait, je ne peux exprimer ce que je souffrais. Et comme je savais que ce souverain de mon âme se contentait de tout ce que l'obéissance m'ordonnait et qu'il prenait un singulier plaisir de me voir humiliée, cela me rendait très fidèle à m'accuser de mes fautes pour en recevoir pénitence, puisque, quelque rudequ'elle pût être, elle ne me semblait qu'un doux rafraîchissement auprès de celle qu'il m'imposait lui-même qui voyait des défauts on ce qui me semblait le plus pur et parfait.
 C'et ce qu'il me donna à connaître un jour de Toussaint, qu'il me fut dit intelligiblement :
 
-> Rien de souillé dans l'innocence;<br>
-Rien ne se perd dans la puissance ;<br>
-Rien ne passe en ce beau jour ;<br>
-Tout s'y consomme dans l'amour.
+> Rien de souillé dans l'innocence;
+>
+> Rien ne se perd dans la puissance ;
+>
+> Rien ne passe en ce beau jour ;
+> 
+> Tout s'y consomme dans l'amour.
 
 L'explication qui me fut donnée de ces paroles m'a servi longtemps d'occupation. Rien de souillé dans l'innocence; c'est-à-dire qu'il ne fallait souffrir aucune tache dans mon âme, ni dans mon cœuur.
 
@@ -411,10 +440,14 @@ Comme j'étais en retraite, je passais tout le jour dans ces .plaisirs inexplica
 
 Et pendant tout ce temps, je ne me sentais pas ni ne savais plus où j'en étais. Lorsqu'on vintme retirer de là, voyant que je ne pouvais répondre moi-même me soutenant qu'avec grand peine, l'on me mena à notre Mère, laquelle me trouvant comme tout hors de moimême, toute brûlante et tremblante, je me jelai par terre à genoux, où elle me mortifia et humilia de toutes ses forces ; ce qui me Taisait un plaisir et me donnait une joie incroyable. Car je me sentais tellement criminelle et, remplie de confusion que, quelque rigoureux traitement qu'on m'eût pu faire, il m'aurait semblé trop doux. Après lui avoir dit, .quoiqu'avec une extrême confusion, ce qui s'était passé, elle se prit encore à m'humilier davantage, sans me rien accorder pour cette fois de tout ce que je croyais que Notre-Seigneur me demandait de faire et ne traitant qu'avec mépris tout ce que je lui avais dit. Cela me consola beaucoup et je me retirai avec une grande paix.
 
-> C'est en vain que ton cœur soupire,<br>
-Pour y entrer com'ne tu crois ;<br>
-Il ne faut pas qu'on y aspire,<br>
-Que par le chemin de 'la Croix.
+> C'est en vain que ton cœur soupire,
+>
+> 
+> Pour y entrer com'ne tu crois ;
+> 
+> Il ne faut pas qu'on y aspire,
+>
+> Que par le chemin de 'la Croix.
 
 Ensuite de quoi mettant [devant] moi tout ce que j'aurais à souffrir pendant tout le cours de ma vie, tout mon corps en frémit,
 quoique je ne le comprisse pas alors par cette peinture, comme je l'ai fait depuis par les effets qui s'en sont suivis.
@@ -481,8 +514,9 @@ ce qui me faisait fondre de reconnaissance envers son amoureuse bonté. J'étais
 
 Et une fois que j'avais fait quelque soulèvement de cœur en servant une malade qui avait la dyssenterio, il m'en reprit si fortement, que je [me] vis contrainte, pour réparer cette faute. (*La délicatesse du siècle ne saurait supporter le récit que l'obéissance fait écrire ici à notre Bienheureuse. Il faut que Notre-Seigneur intervienne lui-même pour l'arrêter dans l'excès de sa mortification. C'est alors qu'elle continue :*) 
 
-> « 0 mon » Seigneur ! je le fais pour vous plaire, et pour gagner votre divin Cœur ; j'espère que vous ne me le refuserez pas. Mais vous, mon Seigneur, que n'avez-vous pas fait pour gagner celui des hommes? et cependant ils vous le refusent et vous en chassent bien souvent.»<br>
-— «Il est vrai, ma fille, que mon amour m'a fait tout sacrifier pour eux, sans qu'ils me rendent de retour; mais je veux que tu supplées par les mérites de mon Sacré-Cœur, à leur ingratitude. Je te le veux donner, mon Cœur. Mais auparavant, il faut que tu le rendes sa victime d'immolation, pour [que], avec son entremise, tu détournes les châtiments que la divine justice de mon Père, armé de colère, veut exercer sur une communauté religieuse, [qu'il va] reprendre et corriger en son juste courroux. » 
+> « 0 mon » Seigneur ! je le fais pour vous plaire, et pour gagner votre divin Cœur ; j'espère que vous ne me le refuserez pas. Mais vous, mon Seigneur, que n'avez-vous pas fait pour gagner celui des hommes? et cependant ils vous le refusent et vous en chassent bien souvent.»
+>
+> — «Il est vrai, ma fille, que mon amour m'a fait tout sacrifier pour eux, sans qu'ils me rendent de retour; mais je veux que tu supplées par les mérites de mon Sacré-Cœur, à leur ingratitude. Je te le veux donner, mon Cœur. Mais auparavant, il faut que tu le rendes sa victime d'immolation, pour [que], avec son entremise, tu détournes les châtiments que la divine justice de mon Père, armé de colère, veut exercer sur une communauté religieuse, [qu'il va] reprendre et corriger en son juste courroux. » 
 
 Et me la faisant voir à la même heure avec les détauts particuliers qui l'avaient irrité, çt tout ce qu'il me fallait souffrir pour apaiser sa - juste colère, ce fut alors que tout frémit en moi ; et [je] n'eus pas le courage de me sacrifier. Je dis que n'étant pas à moi, je ne pouvais le faire sans le-consentement de l'obéissance, [et] la crainte que j'avais qu'on ne me le fît faire, me fit négliger de le dire ; mais il me poursuivait sans cesse et ne me donnait point de repos. Je me fondais en larmes, et me [vis] enfin contrainte de le dire à ma Supérieure; laquelle voyant ma peine, me dit de me sacrifier à tout ce qu'il désirait de moi, sans réserve.
 
@@ -674,20 +708,27 @@ Je confesse que je n'aurais pas tenu longtemps un état si douloureux, si son am
 
 [ Mon Souverain ] m'a fait porter souvent ces dispositions douloureuses, parmi lesquelles m'ayant une fois montré les châtiments qu'il voulait exercer sur quelques âmes, je me jetai à ses pieds sacrés en lui disant :
 
-> « 0 mon Sauveur ! déchargez sur moi » toute votre colère et m'effacez du livre. de vie, plutôt que de perdre ces âmes qui vous ont coûté si cher. » <br>
-— Et il me répondit : « Mais elles ne t'aiment pas et ne cesseront de t'affliger. » <br>
-- « Il n'importe! mon Dieu, pourvu qu'elles vous aiment, je ne veux cesser de vous prier de leur pardonner. »<br>
-— « Laisse-moi faire : je ne les peux souffrir davantage. » <br>
-— Et l'embrassant encore plus fortement : « Non, o mon Seigneur, je ne vous quitterai point que vous ne leur ayez pardonné. »<br>
-— Et il me disait : « Je le veux bien, si tu veux répondre pour elles. »<br>
-— « Oui, mon Dieu ; » mais je ne vous paierai toujours qu'avec vos propres biens qui sont les trésors de votre Sacré-Cœur. »<br>
+> « 0 mon Sauveur ! déchargez sur moi » toute votre colère et m'effacez du livre. de vie, plutôt que de perdre ces âmes qui vous ont coûté si cher. »
+>
+> — Et il me répondit : « Mais elles ne t'aiment pas et ne cesseront de t'affliger. »
+>
+> — « Il n'importe! mon Dieu, pourvu qu'elles vous aiment, je ne veux cesser de vous prier de leur pardonner. »
+>
+> — « Laisse-moi faire : je ne les peux souffrir davantage. »
+> 
+> — Et l'embrassant encore plus fortement : « Non, o mon Seigneur, je ne vous quitterai point que vous ne leur ayez pardonné. »
+>
+> — Et il me disait : « Je le veux bien, si tu veux répondre pour elles. »
+>
+> — « Oui, mon Dieu ; » mais je ne vous paierai toujours qu'avec vos propres biens qui sont les trésors de votre Sacré-Cœur. »
 
 C'est de quoi il se tint content.
 
 Et une autre fois comme l'on travaillait à l'ouvrage commun du chanvre, je me retirai dans une petite cour proche du Saint-Sacrement, en faisant mon ouvrage à genoux, je me sentis d'abord toute recueillie intérieurement et extérieurement, et [ il ] me fut en même temps représenté l'aimable Cœur de mon adorable Jésus plus brillant qu'un soleil. Il était au milieu des flammes de son pur amour, environné de séraphins qui chantaient d'un concert admirable :
 
-> L'amour triomphe, l'amour jouit,<br>
-L'amour du saint Cœur réjouit.
+> L'amour triomphe, l'amour jouit,
+>
+> L'amour du saint Cœur réjouit.
 
 Et comme ces Esprits bienheureux m'invitèrent de m'unir avec eux dans les louanges de ce divin [Cœur] , je n'osais pas le faire ; mais ils m'en reprirent, et me dirent
 
@@ -774,13 +815,20 @@ Mais, quelque grandes que soient mes fautes, cet unique bien de mon âme ne me p
 
 Voilà la manière dont il purifiait mes fautes, lorsque je n'étais pas assez prompte et fidèle à m'en punir moi-même. Et jamais je ne recevais aucune grâce particulière desabonté,, qu'elle ne fût précédée de ces sortes de tourments ; et après les avoirs reçues je me sentais jetée et abîmée dans un purgatoire d'humiliation et de confusion, où je souffrais plus que je ne peux l'exprimer; mais toujours dans une paix inaltérable, ne me semblant pas que rien puisse troubler la paix de mon cœur, quoique la partie inférieure fût souvent agitée, soit pas mes passions, soit pas mon ennemi, qui faisait tous ses efforts pour cela, n'y ayant rien où il soit plus puissant et où il gagne tant avec une âme qui est dans le trouble et l'inquiétude ; il en fait son jouet et la rend incapable d'aucun bien.
 
-*Certifié véritable, ce 22 juillet 1715,*<br>
-*Signé,*<br>
-**SŒUR ANNE ÉLISABETH DE LA GARDE**<br>
-Paraphé par nous, le vingt-deux juillet mil sept cent quinze.<br>
-*Signé,*<br>
-**DOM DE BANSIÈRE, commisaire.**<br>
-***CHALON, greffier.**<br>
+*Certifié véritable, ce 22 juillet 1715,*
+
+*Signé,*
+
+**SŒUR ANNE ÉLISABETH DE LA GARDE**
+
+Paraphé par nous, le vingt-deux juillet mil sept cent quinze.
+
+*Signé,*
+
+**DOM DE BANSIÈRE, commisaire.**
+
+***CHALON, greffier.**
+
 
 Nous Protonotaire apostolique, Vicaire général, Archidiacre d'Autun, avons reconnu comme autographe de la Bienheureuse Marguerito Marie Alacoque cette Biographie, écrite par elle-même d'après l'ordre de ses Supérieurs. Elle se compose de soixantequatre pages.
 
@@ -790,8 +838,10 @@ En foi de ce :
 
 Paray, le 26 février 1865.
 
-*Signé,*<br>
-**G. BOUANGE, proton, apost**<br>
+*Signé,*
+
+**G. BOUANGE, proton, apost**
+
 *Vie. gén. archid.*
 
 La Bienheureuse termine ici son Autobiographie, ou pour mieux dire le Mémoire des faveurs divines, qui font comme le tissu de sa vie. Nous sommes en 1687; c'est l'époque même où le P. Rolin quitte Paray.

@@ -8,3 +8,12 @@ L'édition de base est la suivante:
 ````
 Vie de la Bienheureuse Marguerite-Marie Alacoque : tirée textuellement d'un manuscrit écrit par elle-même d'après l'ordre du P. Rolin, son directeur, suivie d'une neuvaine en son honneur par le R. P. Piccirelli.
 ````
+# Téléchargement
+
+## Version 0.1
+
+https://github.com/copistes/alacoque/releases/tag/0.1
+
+- DOCX: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.docx
+- EPUB: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.epub
+- PDF: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.pdf

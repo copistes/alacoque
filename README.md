@@ -10,14 +10,14 @@ Vie de la Bienheureuse Marguerite-Marie Alacoque : tirée textuellement d'un man
 ````
 # Téléchargement
 
-## Version 0.1
+## Version 0.2
 
-https://github.com/copistes/alacoque/releases/tag/0.1
+https://github.com/copistes/alacoque/releases/tag/0.2
 
-- DOCX: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.docx
-- EPUB: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.epub
-- PDF: https://github.com/copistes/alacoque/releases/download/0.1/alacoque.pdf
-- MD: https://github.com/copistes/alacoque/blob/0.1/texte.md
+- DOCX: https://github.com/copistes/alacoque/releases/download/0.2/alacoque.docx
+- EPUB: https://github.com/copistes/alacoque/releases/download/0.2/alacoque.epub
+- PDF: https://github.com/copistes/alacoque/releases/download/0.2/alacoque.pdf
+- MD: https://github.com/copistes/alacoque/blob/0.2/texte.md
 
 # Licence
 
